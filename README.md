@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **ypochoag@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/ypochoag/](https://www.linkedin.com/in/ypochoag/)
-
 - ⚡ Fun fact **I'm still in constant search of my passions**
 
 <h3 align="left">Connect with me:</h3>
